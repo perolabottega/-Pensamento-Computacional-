@@ -1,0 +1,2 @@
+# -Pensamento-Computacional-
+oiii ꕺ
